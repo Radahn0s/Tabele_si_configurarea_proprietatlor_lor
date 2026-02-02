@@ -1,0 +1,1 @@
+# Tabele_si_configurarea_proprietatlor_lor
